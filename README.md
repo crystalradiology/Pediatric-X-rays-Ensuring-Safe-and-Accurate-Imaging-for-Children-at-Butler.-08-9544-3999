@@ -1,0 +1,2 @@
+# Pediatric-X-rays-Ensuring-Safe-and-Accurate-Imaging-for-Children-at-Butler.-08-9544-3999
+At Butler Medical Imaging, pediatric X-rays are performed using modern low-dose technology and tailored protocols designed specifically for young patients. If your child requires medical imaging, knowing when and why to Book Bulk-billed Pediatric X-rays at Butler can help ensure peace of mind and timely care.
